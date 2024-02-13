@@ -1,6 +1,6 @@
 clair elford
 
-I FOLLOW PEOPLE AS A PASTIME also i have a few links (mainly abt PT) here thay i rlly just wanna share 😴😴
+I FOLLOW PEOPLE AS A PASTIME also i have a few links (mainly abt PT) here thay i rlly just wanna share 😴😴 BLOCK ME IF U WANT i will never know i follow like 1k+ people here ;-;
 
 GO HELP PALESTINE WHILE YOURE HERE!!!
 https://arab.org/click-to-help/palestine/
