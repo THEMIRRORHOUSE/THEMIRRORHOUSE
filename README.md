@@ -6,4 +6,4 @@ GO HELP PALESTINE WHILE YOURE HERE!!!
 https://arab.org/click-to-help/palestine/
 
 go check out https://rentry.co/andycallout
-stay safe
+stay safe XOXO
