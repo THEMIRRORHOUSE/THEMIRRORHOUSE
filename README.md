@@ -5,8 +5,9 @@ I FOLLOW PEOPLE AS A PASTIME also i have a few links (mainly abt PT) here thay i
 GO HELP PALESTINE WHILE YOURE HERE!!!
 https://arab.org/click-to-help/palestine/
 
-go check out https://rentry.co/andycallout
-stay safe XOXO
+awareness links
+https://rentry.co/andycallout
+https://rentry.co/reiawareness
 
 TUTORIAL HOW TO MAKE UR README.MD SHOW IN UR PROFILE becayse some of yall dont know how to ;-; umm im not doing a video or sharing pics.no im too lazy to do allat.
 1. make a new repository
